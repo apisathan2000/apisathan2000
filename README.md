@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **apisathan2000@gmail.com**
 
-- ⚡ Fun fact **I love reading and listening to music**
+- ⚡ **I love reading and listening to music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
